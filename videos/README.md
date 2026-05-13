@@ -12,3 +12,4 @@
 - 8 - 🎬 [Street-Fighter-6-🔥-JOHNTAKEUCHI-(#1-Ranked-Jamie)-Vs-YAS-(Ryu)🔥SF6-High-Level-Matches!](https://github.com/hunterxmugiwarax-sys/FGC/tree/main/videos/Street-Fighter-6-%F0%9F%94%A5-JOHNTAKEUCHI-%28%231-Ranked-Jamie%29-Vs-YAS-%28Ryu%29%F0%9F%94%A5SF6-High-Level-Matches%21)
 - 9 - 🎬 [TYLER1-Trash-Talked-Me,-So-I-Destroyed-Him](https://github.com/hunterxmugiwarax-sys/FGC/tree/main/videos/TYLER1-Trash-Talked-Me%2C-So-I-Destroyed-Him)
 - 10 - 🎬 [This-Is-So-GOOD!!!-BigBig-Won-Blitz-2-Review](https://github.com/hunterxmugiwarax-sys/FGC/tree/main/videos/This-Is-So-GOOD%21%21%21-BigBig-Won-Blitz-2-Review)
+- 11 - 🎬 [xQc-Reacts-to-HILARIOUS-TikToks-&-Clips-From-Chat](https://github.com/hunterxmugiwarax-sys/FGC/tree/main/videos/xQc-Reacts-to-HILARIOUS-TikToks-%26-Clips-From-Chat)
